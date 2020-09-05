@@ -6,4 +6,10 @@ whoops not to master - cute code n' stuff
 
 Ted and Alice were a good team and finished on time.
 
+
 New roles new rules
+
+- What realm is this?
+
+is the real life or is it just fantasy?
+
